@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lindsay2389
-- 👀 I’m interested in shemale
-- 🌱 I’m currently learning sex
+- 👀 I’m interested in fake website page
+- 🌱 I’m currently learning hacking
 - 💞️ I’m looking to collaborate on WhatsApp
 - 📫 How to reach me Google hacking
 
